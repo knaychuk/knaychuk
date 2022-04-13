@@ -1,4 +1,3 @@
-### GitHub Profile and Repositories are currently being edited!
 
 
 <!--
